@@ -5,3 +5,5 @@ The two moons may be a problem for Wolfman
 But the Mummy will appreciate the lack of humidity
 Ece's line is here
 Let's figure out how to get to Mars first
+
+says audit???! paid for course says audit? covid?! stress why course staff not help
